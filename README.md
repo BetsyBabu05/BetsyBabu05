@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Betsy
+- 👀 I’m interested in Hiring Talents
+- 🌱 I’m currently ssociated with Avivo Group
+- 💞️ I’m looking to collaborate with Healthcare Professionals
+- 📫 How to reach me - CONNECT
